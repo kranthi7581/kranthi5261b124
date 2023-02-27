@@ -1,0 +1,2 @@
+# kranthi5261b124
+DEVOPS &amp; MLOPS PROJECT
